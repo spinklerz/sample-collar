@@ -1,6 +1,6 @@
-## Feel free to rest at this Bonfire 🔥
-
-
+## Greetings Knight!👾
+<!-- Credit for gif to https://www.pinterest.com/pin/347973508689050280/  -->
+<img alt="Coding" width="400" src="https://github.com/spinklerz/sample-collar/blob/main/Aye%20Siwmae%2C%20and%20good%20day%20to%20you.gif">
 
 ### It is very nice to meet you wanderer, as for I 
 
